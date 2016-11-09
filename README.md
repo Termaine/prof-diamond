@@ -1,0 +1,2 @@
+# prof-diamond
+chitsva chirimurutsoka
